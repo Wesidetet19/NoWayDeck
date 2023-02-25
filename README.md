@@ -6,4 +6,6 @@
 
 **3DMark SlingShot Extreme Unlimited Android Results**
 
-![share_image_1677174671873](https://user-images.githubusercontent.com/89215114/221328825-5acca302-e635-4560-9345-5fdb0c877aa1.png)
+![share_image_1677303438825](https://user-images.githubusercontent.com/89215114/221344071-afdc8731-8187-40d1-86b0-7ea934dfadf0.png)
+
+
